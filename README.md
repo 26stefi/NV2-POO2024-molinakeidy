@@ -1,1 +1,0 @@
-# NV2-POO2024-molinakeidy
